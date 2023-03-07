@@ -1,0 +1,2 @@
+# https-appzsoft.com-can-i-use-whatsapp-business-and-whatsapp-with-same-number-
+WhatsApp Business is a free mobile app that helps business owners manage their customers and talk to them in a safer and more efficient way. It lets businesses make a professional profile with important information like their address, website, and hours of operation. It also lets them offer automated and personalized customer service.
